@@ -10,7 +10,7 @@ Currently, I am a student in the year-up program since Dec 2022, The year-up pro
 Through the year up program I have and I am learning about project management path.The things that excite me about the project manegment path is 
 being  project manegment  I will able to use the knowledge that I have from life and the knowledge I have gained from the program and be able to apply it to a project that can **cause change even just if it is for a small community of people or just one person.**
 
-Another thing that excites me is the internship and being placed in an internship and through the internship I hope to practice the skills that I have learned in the year up program learn grow and expand my knowledge on project management career.
+Another thing that excites me is the internship and being placed in an internship and through the internship I hope to practice the skills that I have learned in the year up program learn,grow and expand my knowledge on project management career.
 
 One other thing that excites me about project management is that the skill that I have gained from the project management path are transferable in any industry,I can apply the skills ***any where.***
 
