@@ -21,7 +21,7 @@ One other thing that excites me about project management is that the skill that 
 
 # Achievement 
 
-An acheievment I'm proud of while being in the Year Up program is that I have been able to **complete the online Google certification for project management.**
+An achievement I'm proud of while being in the Year Up program is that I have been able to **complete the online Google certification for project management.**
 **<https://www.linkedin.com/in/makda-asghedom-010a09261/>**
 
 
