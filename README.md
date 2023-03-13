@@ -19,7 +19,9 @@ Another thing that excites me is the internship and being placed in an internshi
 
 One other thing that excites me about project management is that the skill that I have gained from the project management path are transferable in any industry,I can apply the skills ***any where.***
 
-The achievement that I'm proud of while being in the Year Up program is that I have been able to **complete the online Google certification for project management.**
+# Achievement 
+
+An acheievment I'm proud of while being in the Year Up program is that I have been able to **complete the online Google certification for project management.**
 **<https://www.linkedin.com/in/makda-asghedom-010a09261/>**
 
 
