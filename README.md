@@ -1,7 +1,8 @@
 # My-Profile
 ![alt text](1674265556621.jfif)
 
-##Back Ground
+**Back Ground**
+
 I am from a country on the east side of Africa called Ethiopia, I grew up in **The beautiful country called Kenya city Nairobi** ****(also on east side of Africa)*
 At the age of 15 I moved to the beautiful sun city in America called **El Paso, Texas,** after 9 years in *sun city*
 I moved to Seattle and was fortunate to come across information about the year up program I applied and I'm grateful that I was accepted.
