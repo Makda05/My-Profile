@@ -6,6 +6,10 @@ Background
 
 I am from a country on the east side of Africa called Ethiopia, I grew up in **The beautiful country called Kenya,Nairobi** ****(also on east side of Africa)*
 At the age of 15 I moved to the beautiful sun city in America called **El Paso, Texas,** after 9 years in *sun city*
+
+![el paso](https://user-images.githubusercontent.com/127261045/225150647-eda28c7b-2d5c-468b-bce7-d1e5a00a8c89.jpeg)
+
+
 I moved to Seattle and was fortunate to come across information about the year up program I applied and I'm grateful that I was accepted.
 
 # Year up
