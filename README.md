@@ -8,7 +8,7 @@ I am from a country on the east side of Africa called Ethiopia, I grew up in **T
 At the age of 15 I moved to the beautiful sun city in America called **El Paso, Texas,** after 9 years in *sun city*
 
 
-![el paso]![AdobeStock_306191339-1024x683 (1)](https://user-images.githubusercontent.com/127354647/226076190-719ff364-e8a2-4f0d-8b32-5f0cae2e26af.jpeg)
+![el paso]!
 
 
 I moved to Seattle and was fortunate to come across information about the year up program I applied and I'm grateful that I was accepted.
