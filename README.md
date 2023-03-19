@@ -1,7 +1,7 @@
 # My-Profile
 ![alt text](1674265556621.jfif)
 
-Background
+# Background
 --------
 
 I am from a country on the east side of Africa called Ethiopia, I grew up in **The beautiful country called Kenya,Nairobi** ****(also on east side of Africa)*
