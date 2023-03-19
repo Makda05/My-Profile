@@ -17,7 +17,11 @@ I moved to Seattle and was fortunate to come across information about the year u
 
 Currently, I am a student in the year-up program since Dec 2022, The year-up program is a non-profit workforce development organization that offers young adults **intensive hands-on training,with 250 corporate partners, and 4000 students graduating annually across 19 cities.**
 
-Through the year up program I have and I am learning about project management path.The things that excite me about the project manegment path is 
+Through the year up program I have and I am learning about project management path.
+
+# What excites me about Year Up
+
+The things that excite me about the project manegment path is 
 being  project manegment  I will able to use the knowledge that I have from life and the knowledge I have gained from the program and be able to apply it to a project that can **cause change even just if it is for a small community of people or just one person.**
 
 Another thing that excites me is the internship and being placed in an internship and through the internship I hope to practice the skills that I have learned in the year up program learn,grow and expand my knowledge on project management career.
